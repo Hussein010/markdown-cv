@@ -1,6 +1,6 @@
 # Hussein Abou Hachem
 **MIS student**
-@agitbouhachemhussein@gmail.com
+Email:abouhachemhussein@gmail.com / Phone number:78837975 / beirut,lebanon
 # Projects
 Shopping Website
  2021
